@@ -1,0 +1,2 @@
+# raraEarthPunishmentGuideline
+ららEarth処罰のガイドライン
